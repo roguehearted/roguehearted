@@ -2,7 +2,7 @@
 
 hi !! i'm *roguehearted*, also known as *rogue* (or my actual name-- *cipher!*)
 
-https://roguehearted.carrd.co/
+https://roguehearted.carrd.co/ **☆** https://colormytree.me/2025/01KC1PZEPVVT5PS0S3AFA8YEJ6
 
 **¸.☆.¸**⁭ 18+ server, safe #1 occassionally. 
 
