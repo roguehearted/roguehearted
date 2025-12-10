@@ -6,9 +6,7 @@ https://roguehearted.carrd.co/ **☆** https://colormytree.me/2025/01KC1PZEPVVT5
 
 **¸.☆.¸**⁭ 18+ server, safe #1 occassionally. 
 
-^ *usually in the murder drones, dandy's world, the amazing digital circus areas,, if you cant find me here, i'm on a pi or explorin !!*
-
-***if i am in a dandy's world skin, sprouts PLEASE interact !! he is my comfort character and i would LOVE TO SNUGGLE YOU !!!***
+^ *usually in the general picnic/market/bakery areas,, if you cant find me here, i'm on a pi or explorin !!*
 
 **✦✧✦✧**
 
